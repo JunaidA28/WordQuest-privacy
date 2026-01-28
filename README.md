@@ -36,6 +36,6 @@ CHANGES TO THIS POLICY
 We may update this Privacy Policy. Changes will be posted within the app or on this page.
 
 CONTACT US
-For questions about this Privacy Policy, contact us at: [JGamersofficial0@gmail.com]
+For questions about this Privacy Policy, contact us at: JGamersofficial0@gmail.com
 
 © 2026 JGamers. All rights reserved.
